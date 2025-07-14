@@ -1,1 +1,1 @@
-# ProdigyTech
+# Prodigy infoTech
